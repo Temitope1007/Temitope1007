@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Temitope1007
 - 👀 I’m interested in product design and app development 
 - 🌱 I’m currently learning project management 
-- 💞️ I’m looking to collaborate on Ushyapp 
+- 💞️ I’m looking to collaborate on anything tech related.
 - 📫 How to reach me obisanya2000@gmail.com
 
 <!---
